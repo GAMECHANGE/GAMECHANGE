@@ -1,8 +1,6 @@
-- 👋 Hi, I’m DJ EVA
-- 👀 I’m interested IN MY DJ REBRAND IN THE META SPACE AS A CREATOR META 
-- 🌱 I’m currently learning ... GITHUB.
-- 💞️ I’m looking to collaborate on ... SPONSORS AND FUNDING. 
-- 📫 How to reach me ...
+- 👋 Hi, I’m DJ EV
+ LOVE TO GITHUB.
+
 
 
 Eva is an author, influencer, Dj, and blogger. She DJs for The Denver Broncos Cheerleaders and her first public show was Red Rocks where she opened for Diplo. Eva is a published author with ratings on the NY Times bestsellers list. She spent nine years working and traveling with comedian Chelsea Handler on TV’s “Chelsea Lately.”
@@ -25,13 +23,7 @@ VIDEOS CLIPS
 Spotify Artist 
 https://open.spotify.com/artist/0GSSX24A5P11Y5juZdthqo?si=N6H8x8Y4ThWDDTCbqzOPEw
 
-
-Amazon influencer
-www.linkedin.com/in/evamagazine
-
-Eva Social Media 
-
-Eva Website
+Eva Links
 https://linktr.ee/Evamag
 
 Eva Instagram
